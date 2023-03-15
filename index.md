@@ -1,7 +1,7 @@
 ## Celeste Leedle  
-* email: cleedle@msudenver.edu
-* github: cleedle
-* instagram: _cleedle_   
+* Email: cleedle@msudenver.edu
+* Github: cleedle
+* Instagram: _cleedle_   
 MSU Denver 2024
 Environmental Science  
 My name is Celeste Leedle. I am currently an intern with ESIIL Stars and working as a shift leader at MOD Pizza. I am from Twin Lakes, Wisconsin. I am currently enrolled as an undergraduate student at Metropolitan State University of Denver and pursuing a degree in Environmental Science. After I graduate, I hope to pursue a career that involves something that will make a positive impact on the environment, no matter how big or small. During my free time, I enjoy spening time outdoors, playing guitar and ukulele, and spending time with friends and family.  
