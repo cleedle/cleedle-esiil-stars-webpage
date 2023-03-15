@@ -1,7 +1,7 @@
 ## Celeste Leedle  
 * Email: cleedle@msudenver.edu
 * Github: cleedle
-* Instagram: _cleedle_  
+* Instagram: _ cleedle _  
 
 MSU Denver 2024  
 Environmental Science   
