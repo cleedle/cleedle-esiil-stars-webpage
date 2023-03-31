@@ -1,6 +1,6 @@
 ## Celeste Leedle  
 * Email: cleedle@msudenver.edu
-* Github: cleedle
+<a href="https://https://github.com/cleedle">Github</a>
 
 School: MSU Denver   
 Year: 2024    
