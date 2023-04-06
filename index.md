@@ -2,7 +2,7 @@
 <img style="float: right;" src="https://github.com/cleedle/cleedle-esiil-stars-webpage/blob/main/IMG_6021%203.jpg?raw=true" width="250" height="350">
 
 * Email: cleedle@msudenver.edu
-* <a href="https://github.com/cleedle">Github</a>Cancel changes
+* <a href="https://github.com/cleedle">Github</a>
 
 School: MSU Denver   
 Year: 2024    
